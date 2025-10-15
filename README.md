@@ -32,7 +32,7 @@ Me motiva asegurar la calidad del software, detectar errores y contribuir a que 
 
 ### 📫 Contáctame:
 - 📧 **baileyruth610@gmail.com**  
-- 💼 [LinkedIn](https://www.linkedin.com/in/ruth-sanchez/) <!-- Reemplaza este enlace con el tuyo real -->
+- 💼 **www.linkedin.com/in/ruth-itzel-sanchez-avila**<!-- Reemplaza este enlace con el tuyo real -->
 
 ---
 
